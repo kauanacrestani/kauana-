@@ -1,1 +1,18 @@
-# kauana-
+# BEM VINDO AO MEU PERFIL 🥇
+
+ME CHAMO KAUANA.💘
+TENHO 15 ANOS, MORO COM MEUS PAIS E MINHA IRMÃ MAIS NOVA.👪
+MORO NO ESTADO DO PARANA NA CIDADE DE SALGADO FILHO.
+TRABALHO DE TERCA-FEIRA A DOMINGO.👁️‍🗨️
+ADORO A RELAÇÂO ENTRE MIM E MEUS PAIS,🫀 COM MINHA IRMÃ TAMBEM,
+AS VEZES BRIGAMOS, MAS COISA DE IRMÃS NÉ.💟
+
+
+
+você pode entrar em contato comigo
+
+kauana.crestani@escola.pr.gov.br
+
+
+
+https://media1.tenor.com/m/G7SwjI3wUdgAAAAC/applaud-clapping.gif
